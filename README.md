@@ -1,43 +1,20 @@
-                      ¨q¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨r
-                      ¨U           ¸£Àû²Ö¿â           ¨U
-        ¨q¨T¨T¨T¨T¨T¨T©È                              ©À¨T¨T¨T¨T¨T¨T¨r
-        ¨U            ¨U      www.fulicangku.com      ¨U            ¨U
-        ¨U            ¨t¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨T¨s            ¨U
-  ¡¡    ¨U                                                          ¨U
-        ¨U¸£Àû²Ö¿âÎªÄúÌá¹©¸÷´óÍøÕ¾¡¢ÂÛÌ³¡¢ÓÎÏ·ÑûÇëÂë¡¢×¢²áÂë¡¢¼¤»îÂë¨U  
-        ¨UÑ¸À×VIPÕÊºÅ·ÖÏí   °®ÆæÒÕÕÊºÅ·ÖÏí   ÌÚÑ¶ÊÓÆµÕÊºÅ·ÖÏí       ¨U  
-        ¨UËÑºüÊÓÆµÕÊºÅ·ÖÏí  ÀÖÊÓÕÊºÅ·ÖÏí     °Ù¶ÈÔÆÕÊºÅ·ÖÏí         ¨U  
-        ¨UQQÐý·çÕÊºÅ·ÖÏí    ÓÅ¿áÕÊºÅ·ÖÏí     ÍÁ¶¹ÕÊºÅ·ÖÏí           ¨U  
-        ¨U                                                          ¨U  
-        ¨U    ¨q©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤¨r    ¨U
-        ¨t¨T¨T©È     AnywhereAnything¡ªµ¥Ò³Ê½È«ÄÜËÑË÷ÒýÇæ     ©À¨T¨T¨s
-              ¨t©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤©¤¨s
 
+â•­â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â•® â•‘ â•°â•â•â”¤ å•é¡µå¼å…¨èƒ½æœç´¢å¼•æ“Ž â”œâ•â•â•¯ â•°â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â•¯
 
+AnywhereAnything æ˜¯ä¸ºäº†æŠŠ webOS çš„ Just Type æ¬ä¸Š web è€Œåšçš„ï¼Œå¹¶è¿›è¡Œäº†æœ¬åœ°åŒ–ã€‚
 
+ä»åœ¨ä¸æ–­æ·»ç –åŠ ç“¦ï¼Œå› ä¸ºæˆ‘æ¯æ—¥çš„å·¥ä½œç”Ÿæ´»å·²ç»ç¦»ä¸å¼€è¿™ä¸ªäº†ã€‚
 
+(è¯·åœ¨æ¡Œé¢ç”µè„‘ä½¿ç”¨)
 
-¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö  Ô´Âë½éÉÜ  ¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö
-AnywhereAnything ÊÇÎªÁË°Ñ webOS µÄ Just Type °áÉÏ web ¶ø×öµÄ£¬²¢½øÐÐÁË±¾µØ»¯¡£
+æ„Ÿè°¢ Ellicã€Seeviiã€John Xiaoã€Lilaã€Baiiiiiiiiã€Rayã€Raincle çš„æ— ç§å¸®åŠ©ã€‚
 
-ÈÔÔÚ²»¶ÏÌí×©¼ÓÍß£¬ÒòÎªÎÒÃ¿ÈÕµÄ¹¤×÷Éú»îÒÑ¾­Àë²»¿ªAAÁË¡£
+â– â– â– â– â– â– â– â– â– â– â– æºç å®‰è£…æ–¹æ³•â– â– â– â– â– â– â– â– â– â– â– 
 
-(ÇëÔÚ×ÀÃæµçÄÔÊ¹ÓÃ)
+1ã€ä¸‹è½½æœ€æ–°çš„æºç 
 
-¸ÐÐ» Ellic¡¢Seevii¡¢John Xiao¡¢Lila¡¢Baiiiiiiii¡¢Ray¡¢Raincle µÄÎÞË½°ïÖú¡£
+2ã€è§£åŽ‹ä¸‹è½½çš„å®‰è£…åŒ…ï¼Œå¾—åˆ°uploadæ–‡ä»¶å¤¹ï¼Œè¯·å°†é‡Œé¢çš„æ‰€æœ‰æ–‡ä»¶å’Œæ–‡ä»¶å¤¹ä¸Šä¼ åˆ°ä½ çš„ç½‘ç«™æ ¹ç›®å½•
 
+3ã€æ›´æ–°æœåŠ¡å™¨ç¼“å­˜
 
-¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡öÔ´Âë°²×°·½·¨¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö¡ö
-
-1¡¢ÏÂÔØ×îÐÂµÄAnywhereAnythingÔ´Âë
-
-2¡¢½âÑ¹ÏÂÔØµÄ°²×°°ü£¬µÃµ½uploadÎÄ¼þ¼Ð£¬Çë½«uploadÀïÃæµÄËùÓÐÎÄ¼þºÍÎÄ¼þ¼ÐÉÏ´«µ½ÄãµÄÍøÕ¾¸ùÄ¿Â¼
-
-3¡¢¸üÐÂ·þÎñÆ÷»º´æ
-
-
-
-ÖÁ´Ë£¬AnywhereAnything°²×°½áÊø
-
-
-
+è‡³æ­¤ï¼Œå®‰è£…ç»“æŸ
